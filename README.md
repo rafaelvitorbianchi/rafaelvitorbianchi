@@ -1,4 +1,4 @@
-- 👋 oi, sou rafael, aluno do roberto bianchi idade16
+- 👋 oi, sou Rafael, aluno do roberto bianchi idade16
 - 👀 sou interessado em esorte
 - 🌱eu gosto de comer, bolo 
 - 💞️nao estou em nennhum relacionamento 
